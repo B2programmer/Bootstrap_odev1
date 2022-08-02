@@ -1,0 +1,1 @@
+![bootstrap patika ödev 1](https://i.gyazo.com/757b2e436d8cac3b5d33fbd60d46b533.png)
